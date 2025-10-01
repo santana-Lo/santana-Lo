@@ -2,7 +2,7 @@
 
 Meu nome é Lorena Santana
 
-- tenho 15 anos
+- tenho 16 anos
 - sou estudante  
 - sou catolica
 
